@@ -2,18 +2,18 @@
 read this to know mor abt me or spy on me!1
 ![Your Banner](https://img1.picmix.com/output/stamp/normal/2/7/6/2/2652672_dd130.png)
 
-goshsh HI uhm mafuui here.. very akward ik shatap 
+goshsh HI uhm kim here.. very akward ik shatap 
 
 so here we go..
 
-𝜗ৎ mafuui! (or call me whatever u want) Age: unk+>+,#@
+𝜗ৎ kim! (or call me whatever u want) Age: unk+>+,#@
 she/they/any
 introvert, socially akward..
 
 ────୨ৎ────
 
 𝜗ৎ i like..
-sweets! my friends!
+sweets! my friends! (stocking irl)
 
 𑣲 D n i.
 if u have a problem w me/myfriends
