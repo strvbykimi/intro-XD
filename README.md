@@ -13,16 +13,23 @@ she/they/any
 
 extrovert mosty, my attitude changes based who im talking with!!
 
+sorry if i fit dni criteria ᯓ★
+
 ────୨ৎ────
 
 𝜗ৎ i like..
 sweets! my friends! (stocking irl)
 
 𑣲 D n i.
+
 if u have a problem w me/myfriends
+
 below 12y (sorri T_T)
+
 transphobics 
+
 racist
+
 anti-lgbt+
 
 ────୨ৎ────
@@ -35,10 +42,16 @@ anyways..
 
 ᯓ★ i sometimes talk when theres akward silence.. sorry i just feels like its too quiet like what should I say T_T
 
-ᯓ★ free c+h anytime! (unless im sittin w my friends) 
+ᯓ★ free c+h anytime! (unless im sittin w my friends, please ask before u sit with us!)
 
 ᯓ★ also pls dni if my name says dni.. if ur my friend then i prob js need sum comfort.
 and if i dont wanna talk abt it, then leave it be, ill probably say it tje next day or two
+
+ᯓ★ next, if im silent then im probably afk, give me like 10 mins or so,, im smt veri busy oka
+
+ᯓ★ do not talk to me abt sensitive topic such as venting + etc! unless close friend. please ask before u do cuz most of the times i will not know what to do and might end up hurting u more.
+
+ᯓ★ yes, im a multishipper and *yumeshipper*, i use it as coping. sorry if it bothers you, i dont talk too much about it tho. sorry if i fit dni.
 
 What the *freak* how do u add Photos
 nvm im not even gunna try
