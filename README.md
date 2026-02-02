@@ -6,9 +6,12 @@ goshsh HI uhm kim here.. very akward ik shatap
 
 so here we go..
 
-𝜗ৎ kim! (or call me whatever u want) Age: unk+>+,#@
+𝜗ৎ kim! (or call me whatever u want) Age: ??
 she/they/any
-introvert, socially akward..
+
+.note, i prefer she/him now : 3
+
+extrovert mosty, my attitude changes based who im talking with!!
 
 ────୨ৎ────
 
@@ -19,7 +22,8 @@ sweets! my friends! (stocking irl)
 if u have a problem w me/myfriends
 below 12y (sorri T_T)
 transphobics 
-or idk what else
+racist
+anti-lgbt+
 
 ────୨ৎ────
 
